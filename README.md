@@ -1,1 +1,1 @@
-Documentation coming soon, still finalaizing some stuff
+Documentation coming soon, still finalizing some stuff
